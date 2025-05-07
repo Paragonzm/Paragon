@@ -1,4 +1,4 @@
-# Hi, I'm ZeusIGL 👋
+# Hi, I'm Paragon 👋
 
 🎓Computer Science Bachelor's degree holder
 📄I design and develop websites
